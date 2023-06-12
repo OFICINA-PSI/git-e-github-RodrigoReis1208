@@ -1,0 +1,1 @@
+Eu sei um pouco de tudo, mas podia melhorar
